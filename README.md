@@ -4,4 +4,4 @@ https://filen.io/d/8dc5f1f5-5d09-4916-b811-31a1a02f0a26#!v0ftpg8Rh66YhMpHvQCFVA8
 
 https://drive.google.com/file/d/1DNaIZ7wMdVsL7wxHQ40CRleXqhdix2Mc/view?usp=drivesdk
 
-https://mullvad.net/download/app/exe/latest/
+https://file.io/fr03iGHVmMy2
